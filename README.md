@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @FanvickTV
+- 👀 I’m interested in Video Games, listening to podcasts, DnD, and Crafting! 
+- 🌱 I’m currently learning how to code!
